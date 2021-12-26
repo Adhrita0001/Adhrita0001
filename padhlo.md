@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Adhrita0001
+- 👀 I’m interested in music , coding , gaming
+- 🌱 I’m currently learning JAVA
+- 💞️ I’m looking to collaborate on 
